@@ -1,0 +1,1 @@
+Assista essa aula no YouTube: https://www.youtube.com/watch?v=TAdrSfvNFI0&list=PL54MLQz4PHsx1qFY8gUpCjLa6ORAvGdRn&index=2
